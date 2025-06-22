@@ -44,6 +44,6 @@ Impressions was 45 on the average. There was no content pillars or types. Just p
 
 ![AFTER CHALLENGE.png](https://github.com/Ibukun-Oluwatosin/LINKEDINGROWTH/blob/main/AFTER%20CHALLENGE.png)
 
-![TOP PERFORMING POSTS.png](attachment:c1dce389-b204-44a7-b7b0-e4fc7553965b:TOP_PERFORMING_POSTS.png)
+![TOP PERFORMING POSTS.png](https://github.com/Ibukun-Oluwatosin/LINKEDINGROWTH/blob/main/TOP%20PERFORMING%20POSTS.png)
 
 **Grew my personal LinkedIn following by 22.9% in 30 days through organic content strategy and engagement increasing reach, visibility, and inbound leads. I can help you achieve the same for your business or personal brand**
