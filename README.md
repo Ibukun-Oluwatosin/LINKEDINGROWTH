@@ -36,7 +36,7 @@ To grow personal brand visibility on LinkedIn and attract opportunities in conte
 
 Impressions was 45 on the average. There was no content pillars or types. Just posting for posting sake
 
-![BEFORE 30 DAYS CHALLENGE.png]([attachment:1f963bad-2882-4a44-8f49-99d1a03a16be:BEFORE_30_DAYS_CHALLENGE.png](https://github.com/Ibukun-Oluwatosin/LINKEDINGROWTH/blob/main/BEFORE%2030%20DAYS%20CHALLENGE.png))
+![BEFORE 30 DAYS CHALLENGE.png](https://github.com/Ibukun-Oluwatosin/LINKEDINGROWTH/blob/main/BEFORE%2030%20DAYS%20CHALLENGE.png)
 
 **THIS IS THE RESULT AFTER 30 DAYS** 
 
