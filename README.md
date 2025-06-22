@@ -42,7 +42,7 @@ Impressions was 45 on the average. There was no content pillars or types. Just p
 
 30 days of following a content plan and calendar
 
-![AFTER CHALLENGE.png](attachment:882825f3-f09d-4750-b740-2d318db36804:AFTER_CHALLENGE.png)
+![AFTER CHALLENGE.png](https://github.com/Ibukun-Oluwatosin/LINKEDINGROWTH/blob/main/AFTER%20CHALLENGE.png)
 
 ![TOP PERFORMING POSTS.png](attachment:c1dce389-b204-44a7-b7b0-e4fc7553965b:TOP_PERFORMING_POSTS.png)
 
